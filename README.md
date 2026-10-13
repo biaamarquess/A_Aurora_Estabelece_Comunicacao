@@ -1,0 +1,1 @@
+# A_Aurora_Estabelece_Comunicacao
